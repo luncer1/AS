@@ -1,0 +1,1 @@
+# Cały cms w .rar, screeny z działania załączone w folderze
